@@ -1,4 +1,4 @@
-# Hi, I'm Tanvi 👋
+# Hi, I'm niharika tanwi
 
 I am a B.Tech student currently in my 2025-2029 as per university record, passionate about learning and growing in the field of technology.
 
